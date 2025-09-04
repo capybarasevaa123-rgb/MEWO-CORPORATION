@@ -4,5 +4,5 @@ Hope you like it! Remenber: Don't spend a lot of time in this website. It can be
 
 I really hope you like it! <3 :3 :D 
 
-Remenber: Our pet is :3!!!!!!
+Remember: Our pet is :3!!!!!!
 
